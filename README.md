@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnujD212 
-- 👀 I’m interested in learning new technologies and sharing meaningful outcomes with all...
+- 👀 interested in learning new technologies and sharing meaningful outcomes with all...
 - 🌱 
 - 💞️
 - 📫 Reach me at anujdara90@gmail.com
